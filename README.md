@@ -1,2 +1,2 @@
 # SeZ
-SeZ Team Apps
+Best Team Ever!
